@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+# Introduction
+Welcome! This blog/site serves as Dr. B's online sandbox to think and share his thoughts, struggles, and praises with the hope of encouraging fellow believers to persevere in the Christian life by trusting the promises of God. May everyone who finds their way here be blessed in some way by the mercies of God. 
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+# Links
+Below are links to helpful resources.
